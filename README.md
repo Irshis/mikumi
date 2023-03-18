@@ -10,7 +10,7 @@
 keyword[百合 / 女子高生 / 痴漢電車 / 純愛]
 
 原文+番外
-http://lily.x0.com/HureChise/TeaPot/org/mikumi/mikumi_01.html
+http://kitsune.sakura.ne.jp/HureChise/TeaPot/org/mikumi/mikumi_01.html
 
 
 中文
