@@ -8,3 +8,20 @@
 純愛(？)百合ストーリー。
 
 keyword[百合 / 女子高生 / 痴漢電車 / 純愛]
+
+原文+番外
+http://lily.x0.com/HureChise/TeaPot/org/mikumi/mikumi_01.html
+
+
+中文
+https://ameblo.jp/mikumicn/
+
+中文补充
+https://www.yamibo.com/novel/185998
+
+中文番外
+https://stanlie29.pixnet.net/blog
+
+
+密码:
+mikumi
